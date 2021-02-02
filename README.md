@@ -5,7 +5,7 @@ Age 29 (1992-01), Russia.
 
 Email: dr.freeman0@gmail.com
 
-LinkedIn: https://www.linkedin.com/in/anton-suvorov-217010134/
+LinkedIn: https://www.linkedin.com/in/warwish/
 
 Telegram: warwish
 
